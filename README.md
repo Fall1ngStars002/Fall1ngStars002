@@ -17,4 +17,4 @@ if im in any other server other than english safe it probably means im chasing a
 
 I forget things ALOT.  (ᵕ - ᴗ -) 
 
-
+If nonverbal then basic interactions will be said though emojis. 
