@@ -18,3 +18,15 @@ if im in any other server other than english safe it probably means im chasing a
 I forget things ALOT.  (ᵕ - ᴗ -) 
 
 If nonverbal then basic interactions will be said though emojis. 
+
+ABOUT ALTERS ; 
+
+Note ; We have 1 alter over 18, but she still prefers you NOT to talk about 18+ topics. 
+
+Juniper ; Host ; They / It . 
+. 
+Lotus ; Caretaker ; She / They .  26
+. 
+Jay ; Prosecutor ; He / Him . 17
+. 
+Kippers ; Dawg ; It / Its . 10
